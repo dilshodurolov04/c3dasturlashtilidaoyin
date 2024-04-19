@@ -1,0 +1,2 @@
+# c3dasturlashtilidaoyin
+oyin
